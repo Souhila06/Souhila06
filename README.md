@@ -30,6 +30,6 @@
 
 ### 📫 Me Contacter
 💼 [LinkedIn](https://www.linkedin.com/in/souhila-yousfi-9964a5294)  
-📧 Email : yousfisouhila430@gmail.com  
+📧 Email : souhilayousfi.pro@gmail.com  
 
 ⭐️ N'hésite pas à explorer mon GitHub et à contribuer à mes projets ! 😊  
